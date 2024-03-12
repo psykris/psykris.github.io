@@ -18,3 +18,28 @@ And we often tend to choose the latter. Think about all those times you settled,
 Terrifying? Good. It is not too late. Instead of lazing off the next time the world brings you an opportunity, act on it. 
 
 Hopefully this acts as a catalyst for your tomorrow :)
+
+2. "Observations of evolving friendships and family with time" - 12.03.2024
+
+I am back after nearly a 18 month hiatus, having forgotten that I ever made a blog post.
+
+But this time I am here with a painful observation about the human condition. Something I lately observe in and around myself in increasing frequency.
+
+Jealousy and Sadism.
+
+Jealousy is resentment towards someone because of their achievements, in most cases, due to comparison with self. This is mostly towards people who we consider in a better social, financial or x situation than ourself and the feeling of "not being enough" due to a multitude of reasons, manifests itself in form of jealousy.
+
+Sadism is driven by the need to dominate others. This is commonly towards the more helpless in comparison or the ones that are in some way perceived inferior either by self or a large part of society to self. It is a form of inflicting pain, verbally or unfortunately physically in some instances towards the lesser individual.
+
+The way jealousy and sadism work in healthy amounts between friends is something to take note of as well. Fueled in the right direction, it can act as motivation to upskill and pull oneself upto the level we feel inferior to. A bit of friendly jostling and mocking is something we all miss in our adulthood. But that is the problem. It never stops there.
+
+Possible cases of friends and family who once support us, love us, care for us, eventually getting better are not uncommon. As long as you are in the social circles that you agree being belittled in, you can get by fine. But, only as long as you accept submitting to a degrading joke. 
+
+To the point of friends, it seems understandable. Who are friends really? Some random person you met because of a common circumstance (education, work, hobby..,). Someone who is similarly minded, who you subconsciously calculated wouldn't be a threat and who you can let your guard down around. They are temporary. Or atleast not constantly in your life.
+
+But family is different. Family means more. Instances where siblings fight and degrade each other is not uncommon because of survivalistic tendencies, but recent observations of insulting each other's children very sadistically, making sure that they are scarred and never grow up to be as competent as their own kids could be. I find it pathetic that people, irrespective of their education or social standing, stoop to such behaviour to make sure the blood of their blood stays strong, by suppressing their possible best competition. If that is the only people we want to best, we have lost horribly in life. If that is the limitation of mind one can tolerate, it is stupidity.
+
+And the only thing that makes sense in this case, where uncles and aunts, brothers and sisters, cousins and friends act in a way to hurt each other, is for one's own ego. They want to feel better about themselves. Irrespective of how they convince themselves it is for their love towards their own, it is ultimately about YOU.
+
+So, the solution to this madness? Detachment. Disassociate yourself from the world once in a while. Sure, protect your loved ones with all your might. But not at the cost of bringing someone else down. Let's be better by teaching them life, the right way. 
+
