@@ -19,7 +19,7 @@ Terrifying? Good. It is not too late. Instead of lazing off the next time the wo
 
 Hopefully this acts as a catalyst for your tomorrow :)
 
-2. "Observations of evolving friendships and family with time" - 12.03.2024
+2. "Observations of evolving friendships and family over time" - 12.03.2024
 
 I am back after nearly a 18 month hiatus, having forgotten that I ever made a blog post.
 
