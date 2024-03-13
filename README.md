@@ -1,6 +1,11 @@
-# Blog
+# Blogs 
 
-Still working out the know-how of a blog building. For now, please follow chronological order. Thanks :)
+To know how to create self-hosted open-source blog posts, try these
+- https://pages.github.com/
+- https://docs.github.com/en/get-started/writing-on-github/getting-started-with-writing-and-formatting-on-github/basic-writing-and-formatting-syntax#links
+
+
+Still working out the know-how of blog building. For now, follow the chronological order. Cheers :)
 
 1. The moment - 11.11.2022
 
@@ -19,7 +24,7 @@ Terrifying? Good. It is not too late. Instead of lazing off the next time the wo
 
 Hopefully, this acts as a catalyst for your tomorrow :)
 
-2. "Observations of evolving friendships and family over time" - 12.03.2024
+2 "Observations of evolving friendships and family over time" - 12.03.2024
 
 I am back after nearly a 18 month hiatus, having forgotten that I ever made a blog post.
 
