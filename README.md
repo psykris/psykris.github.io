@@ -1,8 +1,8 @@
 # Blogs 
 
 To know how to create self-hosted open-source blog posts, try these
-- [Github Pages] (https://pages.github.com/)
-- [Formatting and syntax in Github Pages] (https://docs.github.com/en/get-started/writing-on-github/getting-started-with-writing-and-formatting-on-github/basic-writing-and-formatting-syntax#links)
+- [Github Pages](https://pages.github.com/)
+- [Formatting and syntax in Github Pages](https://docs.github.com/en/get-started/writing-on-github/getting-started-with-writing-and-formatting-on-github/basic-writing-and-formatting-syntax#links)
 
 [Somebody's fool](https://github.com/psykris/psykris.github.io#3-somebodys-fool---19032024)
 
