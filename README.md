@@ -8,11 +8,11 @@
 
 ## Somebody's fool - 19.03.2024
 
-As children take shape of their persona during the years leading to adulthood, it is quite essential that they understand concepts of individuality, independence, and the ability to navigate tough conversations and situations that life presents inevitably. These traits are generally instilled by parents and other close individuals by direct influence or books and other channels by indirect influence. It is notoriously hard to change or inculcate new habits, especially behavioural, because life needs to be on auto-pilot during most of the adult life. The average adult, often does not have the luxury to constantly monitor their own thoughts and compulsive behaviours towards a certain type of individuals or situations, because it can be mentally exhausting. And lets face it, taking a whole minute to respond to someone during a conversation seems lame. No one waits that long or simply deem the non-response as incompetence. So, Some react emotionally and some simply avoid confrontations and tough conversations because it seems unnecessary. 
+As children take shape of their persona during the years leading to adulthood, it is quite essential that they understand concepts of individuality, independence, and the ability to navigate tough conversations and situations that life presents inevitably. These traits are generally instilled by parents and other close individuals by direct influence or books and other channels by indirect influence. It is notoriously hard to change or inculcate new habits, especially behavioural, because life needs to be on auto-pilot during most of the adult life. The average adult, often does not have the luxury to constantly monitor their own thoughts and compulsive behaviours towards individuals or situations, because it can be mentally exhausting. And lets face it, taking a whole minute to respond to someone during a conversation seems lame. No one waits that long or simply deem the non-response as incompetence. So, some react emotionally and some simply avoid confrontations and tough conversations because it seems unnecessary. 
 
 Either way, the more important thing is to live and interact on one's own terms, uninfluenced by whims and fancies, emotional blackmail, subtle threats or fears. Given enough **time** for comprehension of a situation, could do wonders to the way, we could respond to it, instead of reacting. 
 
-So, take your time. 
+Therefore, take your time :) 
 
 > Understand the power - for good or bad - of incentives, the weaknesses of humans, the tells that can be recognized when observing human behavior. Know who is "cheering for you" and who can be trusted. In short, be nobody's fool. - Warren Buffet \(interpreted)
 
