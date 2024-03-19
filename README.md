@@ -5,7 +5,9 @@ To know how to create self-hosted open-source blog posts, try these
 - [Formatting and syntax in Github Pages] (https://docs.github.com/en/get-started/writing-on-github/getting-started-with-writing-and-formatting-on-github/basic-writing-and-formatting-syntax#links)
 
 [Somebody's fool](https://github.com/psykris/psykris.github.io#3-somebodys-fool---19032024)
+
 [Observations of evolving friendships and family over time](https://github.com/psykris/psykris.github.io#2-observations-of-evolving-friendships-and-family-over-time---12032024)
+
 [The moment](https://github.com/psykris/psykris.github.io#1-the-moment---11112022)
 
 ## Somebody's fool - 19.03.2024
@@ -48,7 +50,7 @@ I will not go spiritual by telling you that the "World is one family" (Vasudaika
 
 Let's be better by staying conscious of our behavior, towards the more vulnerable and breaking our generational curses.
 
-## 1. The moment - 11.11.2022
+## The moment - 11.11.2022
 
 I came across this idea or a concept of a "**Transcendental moment**" watching a socialistic POV podcast on capitalism, where it was an image of Lenin standing in a room full of, I presume, revolutionists during the Russian Revolution, all while listening to the revolt against the bourgeoisie.
 
