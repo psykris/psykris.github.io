@@ -60,6 +60,6 @@ Either way, the more important thing is to live and interact on one's own terms,
 
 So, take your time. 
 
-> [!Quote - Warren Buffet \(interpreted)]
-> Understand the power - for good or bad - of incentives, the weaknesses of humans, the tells that can be recognized when observing human behavior. Know who is "cheering for you" and who can be trusted. In short, be nobody's fool. 
+> [!Note]
+> Understand the power - for good or bad - of incentives, the weaknesses of humans, the tells that can be recognized when observing human behavior. Know who is "cheering for you" and who can be trusted. In short, be nobody's fool. - Warren Buffet \(interpreted)
 
