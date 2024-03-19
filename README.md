@@ -1,9 +1,5 @@
 # Blogs 
 
-To know how to create self-hosted open-source blog posts, try these
-- [Github Pages](https://pages.github.com/)
-- [Formatting and syntax in Github Pages](https://docs.github.com/en/get-started/writing-on-github/getting-started-with-writing-and-formatting-on-github/basic-writing-and-formatting-syntax#links)
-
 [Somebody's fool](https://github.com/psykris/psykris.github.io#3-somebodys-fool---19032024)
 
 [Observations of evolving friendships and family over time](https://github.com/psykris/psykris.github.io#2-observations-of-evolving-friendships-and-family-over-time---12032024)
@@ -19,7 +15,9 @@ Either way, the more important thing is to live and interact on one's own terms,
 So, take your time. 
 
 > Understand the power - for good or bad - of incentives, the weaknesses of humans, the tells that can be recognized when observing human behavior. Know who is "cheering for you" and who can be trusted. In short, be nobody's fool. - Warren Buffet \(interpreted)
-Still working out the know-how of blog building. For now, follow the chronological order. Cheers :)
+
+
+
 
 
 ## Observations of evolving friendships and family over time - 12.03.2024
@@ -49,6 +47,10 @@ So, the solution to this madness? Detachment. Disassociate yourself from the wor
 I will not go spiritual by telling you that the "World is one family" (Vasudaika Kutumbam - Sanksrit). Learn away, compete with yourself. If possible uplift someone else on the journey with you. But at least, despite not nurturing, do not inflict any damage. 
 
 Let's be better by staying conscious of our behavior, towards the more vulnerable and breaking our generational curses.
+
+
+
+
 
 ## The moment - 11.11.2022
 
