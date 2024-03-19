@@ -1,30 +1,26 @@
-### Blogs 
+# Blogs 
 
 To know how to create self-hosted open-source blog posts, try these
 - [Github Pages] (https://pages.github.com/)
 - [Formatting and syntax in Github Pages] (https://docs.github.com/en/get-started/writing-on-github/getting-started-with-writing-and-formatting-on-github/basic-writing-and-formatting-syntax#links)
 
+[Somebody's fool](https://github.com/psykris/psykris.github.io#3-somebodys-fool---19032024)
+[Observations of evolving friendships and family over time](https://github.com/psykris/psykris.github.io#2-observations-of-evolving-friendships-and-family-over-time---12032024)
+[The moment](https://github.com/psykris/psykris.github.io#1-the-moment---11112022)
 
+## Somebody's fool - 19.03.2024
+
+As children take shape of their persona during the years leading to adulthood, it is quite essential that they understand concepts of individuality, independence, and the ability to navigate tough conversations and situations that life presents inevitably. These traits are generally instilled by parents and other close individuals by direct influence or books and other channels by indirect influence. It is notoriously hard to change or inculcate new habits, especially behavioural, because life needs to be on auto-pilot during most of the adult life. The average adult, often does not have the luxury to constantly monitor their own thoughts and compulsive behaviours towards a certain type of individuals or situations, because it can be mentally exhausting. And lets face it, taking a whole minute to respond to someone during a conversation seems lame. No one waits for that long or simply deem the non-response as incompetence. So, Some react emotionally and some simply avoid confrontations and tough conversations because it seems unnecessary. 
+
+Either way, the more important thing is to live and interact on one's own terms, uninfluenced by whims and fancies, emotional blackmail, subtle threats or fears. Given enough **time** for comprehension of a situation, could do wonders to the way, we could respond to it, instead of reacting. 
+
+So, take your time. 
+
+> Understand the power - for good or bad - of incentives, the weaknesses of humans, the tells that can be recognized when observing human behavior. Know who is "cheering for you" and who can be trusted. In short, be nobody's fool. - Warren Buffet \(interpreted)
 Still working out the know-how of blog building. For now, follow the chronological order. Cheers :)
 
-## 1. The moment - 11.11.2022
 
-I came across this idea or a concept of a "**Transcendental moment**" watching a socialistic POV podcast on capitalism, where it was an image of Lenin standing in a room full of, I presume, revolutionists during the Russian Revolution, all while listening to the revolt against the bourgeoisie.
-
-At any given point of time in history, a great change, a monumental shift, happened because of an accumulation of tiny recurrences leading to that point (Popularly referred to as the butterfly effect). A catalyst or a person (in case of a revolution), recognizes this change or is an unconscious victim to the old paradigm who believes with all their heart that a new system is needed. The people give that person complete control of the new system since it is uncharted territory that they are stepping into and he/she seems to have better knowledge about it, however limited that is at that point. 
-
-I believe that an individual's future is of a very similar effect. Except the person in control is you. The small things that happen every single day at your work, house, or life, in general, seem slightly, very slightly, disturbing. Ignoring them day after day or making "adjustments" is the way we go by it normally. But when that moment comes, the moment a major change has to happen, we often have a choice, 
-
-- [ ]  Take action
-- [ ]  Adjust
-
-And we often tend to choose the latter. Think about all those times you settled, think about all those times you told yourself it is more important to be happy and watch a movie, go out with friends, or play a game, none of which you probably remember, because you gave in instant gratification. Think what could have been, if you took action.
-
-Terrifying? Good. It is not too late. Instead of lazing off the next time the world brings you an opportunity, act on it. 
-
-Hopefully, this acts as a catalyst for your tomorrow :)
-
-## 2. Observations of evolving friendships and family over time - 12.03.2024
+## Observations of evolving friendships and family over time - 12.03.2024
 
 I am back after nearly an 18-month hiatus, having forgotten that I ever made a blog post.
 
@@ -52,13 +48,20 @@ I will not go spiritual by telling you that the "World is one family" (Vasudaika
 
 Let's be better by staying conscious of our behavior, towards the more vulnerable and breaking our generational curses.
 
-## 3. Somebody's fool - 19.03.2024
+## 1. The moment - 11.11.2022
 
-As children take shape of their persona during the years leading to adulthood, it is quite essential that they understand concepts of individuality, independence, and the ability to navigate tough conversations and situations that life presents inevitably. These traits are generally instilled by parents and other close individuals by direct influence or books and other channels by indirect influence. It is notoriously hard to change or inculcate new habits, especially behavioural, because life needs to be on auto-pilot during most of the adult life. The average adult, often does not have the luxury to constantly monitor their own thoughts and compulsive behaviours towards a certain type of individuals or situations, because it can be mentally exhausting. And lets face it, taking a whole minute to respond to someone during a conversation seems lame. No one waits for that long or simply deem the non-response as incompetence. So, Some react emotionally and some simply avoid confrontations and tough conversations because it seems unnecessary. 
+I came across this idea or a concept of a "**Transcendental moment**" watching a socialistic POV podcast on capitalism, where it was an image of Lenin standing in a room full of, I presume, revolutionists during the Russian Revolution, all while listening to the revolt against the bourgeoisie.
 
-Either way, the more important thing is to live and interact on one's own terms, uninfluenced by whims and fancies, emotional blackmail, subtle threats or fears. Given enough **time** for comprehension of a situation, could do wonders to the way one could respond to it, instead of reacting. 
+At any given point of time in history, a great change, a monumental shift, happened because of an accumulation of tiny recurrences leading to that point (Popularly referred to as the butterfly effect). A catalyst or a person (in case of a revolution), recognizes this change or is an unconscious victim to the old paradigm who believes with all their heart that a new system is needed. The people give that person complete control of the new system since it is uncharted territory that they are stepping into and he/she seems to have better knowledge about it, however limited that is at that point. 
 
-So, take your time. 
+I believe that an individual's future is of a very similar effect. Except the person in control is you. The small things that happen every single day at your work, house, or life, in general, seem slightly, very slightly, disturbing. Ignoring them day after day or making "adjustments" is the way we go by it normally. But when that moment comes, the moment a major change has to happen, we often have a choice, 
 
-> Understand the power - for good or bad - of incentives, the weaknesses of humans, the tells that can be recognized when observing human behavior. Know who is "cheering for you" and who can be trusted. In short, be nobody's fool. - Warren Buffet \(interpreted)
+- [ ]  Take action
+- [ ]  Adjust
+
+And we often tend to choose the latter. Think about all those times you settled, think about all those times you told yourself it is more important to be happy and watch a movie, go out with friends, or play a game, none of which you probably remember, because you gave in instant gratification. Think what could have been, if you took action.
+
+Terrifying? Good. It is not too late. Instead of lazing off the next time the world brings you an opportunity, act on it. 
+
+Hopefully, this acts as a catalyst for your tomorrow :)
 
