@@ -1,10 +1,19 @@
 # Blogs 
 
-[Somebody's fool](https://github.com/psykris/psykris.github.io#3-somebodys-fool---19032024)
+## Master of fate
 
-[Observations of evolving friendships and family over time](https://github.com/psykris/psykris.github.io#2-observations-of-evolving-friendships-and-family-over-time---12032024)
+Do you often wonder, about where you are and what you do in life? You are not alone. And it is also not surprising that for most people, the justifications always go back to the opportunities one had, the financial situation their family came from or someone who took a decision on behalf of them. This article [When I grow up I want to be..](https://www.perkbox.com/uk/resources/blog/when-i-grow-up-i-want-to-be#:~:text=Sadly%2C%20as%20we%20all%20know,their%20younger%20selves%20dream%20job.), shows that around 96% adults never become what they wanted to be as a child. Sure, most dreams might have just been absurd, based on what we fancied a shiny profession as a kid. But it always has a lot more underlying motivation than a child actually reveals (Next time, try asking a kid **why** they want to become something, instead of stopping at what, and you will be surprised). Eventually we realize the real world needs money, reputation of a decent job among other things and we "settle". But that dream job was what made the child in us happy. The article goes on to conclude that despite not living the dreams that you wanted, there's always a way to integrate your interests and passion into your work and that leads to contentment. 
 
-[The moment](https://github.com/psykris/psykris.github.io#1-the-moment---11112022)
+Happiness can be a complex topic to quantify because its mostly subjective. Unfortuantely, we see a lot of unhappy people around us, despite living in the most advanced time in the history of mankind. Most of them attribute it to unhappy workplace, toxic boss etc.., It's true. Meaningful work ranks 2nd in the [list of things that make you happy](https://joyfuldays.com/what-makes-people-happy-the-top-10-list/). But also even more shocking is to note that these people hardly take any steps to change that situation. And its no secret that happiness has a direct impact on relationships, health and longevity!!
+
+So, when it comes to doing, simply and unapologetically pursue what you genuinely want to, as if your life depends on it :grin: (because it really does, just in the long run). Easier said than done? I know. 
+
+- *Try to slowly integrate things into your life that make you happy, everyday a little bit more, as much as your schedule permits.* It can be a hobby or your profession already (in which case, congratulations!!!)
+- *Once you find this flow, don't let it go because that is where one feels alive.* Not only does it rejuvenate you, it makes you look forward to life with more enthusiasm, because the mind chases what it likes. And who knows, you can eventually turn this passion into a profession eventually through a platform (Tiktok, Linkedin etc..,)
+
+On this World Happiness Day, I sincerely wish everyone reading this, to spend time doing exactly what they want with whom they want and stay happy. Join me on my journey as I figure my own way as well. 
+
+> You are the master of your fate and the captain of your soul. Realize that life is coming FROM you and not AT you. - [Invictus, William Ernest Henley](https://www.poetryfoundation.org/poems/51642/invictus) & [Timothée Chalamet ;)](https://www.youtube.com/watch?v=tOwtEmSNvL0)
 
 ## Somebody's fool - 19.03.2024
 
@@ -15,10 +24,6 @@ Either way, the more important thing is to live and interact on one's own terms,
 Therefore, take your time :) 
 
 > Understand the power - for good or bad - of incentives, the weaknesses of humans, the tells that can be recognized when observing human behavior. Know who is "cheering for you" and who can be trusted. In short, be nobody's fool. - Warren Buffet \(interpreted)
-
-
-
-
 
 ## Observations of evolving friendships and family over time - 12.03.2024
 
