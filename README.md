@@ -15,7 +15,7 @@ On this World Happiness Day, I sincerely wish everyone reading this, to spend ti
 
 > You are the master of your fate and the captain of your soul. Realize that life is coming FROM you and not AT you. - [Invictus, William Ernest Henley](https://www.poetryfoundation.org/poems/51642/invictus) & [Timothée Chalamet ;)](https://www.youtube.com/watch?v=tOwtEmSNvL0)
 
-</p>
+
 
 ## Somebody's fool - 19.03.2024
 
@@ -76,3 +76,4 @@ Terrifying? Good. It is not too late. Instead of lazing off the next time the wo
 
 Hopefully, this acts as a catalyst for your tomorrow :)
 
+</p>
