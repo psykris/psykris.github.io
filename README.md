@@ -2,7 +2,10 @@
 
 ## Curiosity - 15.04.2024
 
-I bet you have heard of this at least once as a kid. "Curiosity killed the cat". This is stated when someone is poking their head into something out of interest, asking too many questions, warning them of impending problems that might not be very pleasant. But that is exactly what's wrong with the average adult. He has accepted the subversion for far too long and now is a successful product of a rote system where he is waiting to be merely replaced by a machine. Gone were the days, when a double degree or even a PhD is good enough. It's not and has never been about qualifications. It has been about the resilience, the character, and the ability to tackle the changing world that brings you.
+I bet you have heard this at least once as a kid. 
+> "Curiosity killed the cat"
+
+People are told off this way, when they are poking their head into something out of interest and asking too many questions, warning them of impending problems, that might not be very pleasant. But that is exactly what's wrong with the average adult. He has accepted the subversion for far too long and now is a successful product of a rote system where he is waiting to be merely replaced by a machine. Gone were the days, when a degree or a doctorate was good enough. It's not and has never been about qualifications. It has been about the resilience, the character, and the ability to tackle the challenges, the ever-evolving world that brings you.
 
 Having "Insane curiosity" in things that have an immense impact on the world, will not only leave you to be useful to yourself but others by trying to create more useful stuff for the world. I will leave this short post with a quote.
 
