@@ -1,6 +1,14 @@
 # Blogs 
 
-## Master of fate
+## Curiosity - 15.04.2024
+
+I bet you have heard of this at least once as a kid. "Curiosity killed the cat". This is stated when someone is poking their head into something out of interest, asking too many questions, warning them of impending problems that might not be very pleasant. But that is exactly what's wrong with the average adult. He has accepted the subversion for far too long and now is a successful product of a rote system where he is waiting to be merely replaced by a machine. Gone were the days, when a double degree or even a PhD is good enough. It's not and has never been about qualifications. It has been about the resilience, the character, and the ability to tackle the changing world that brings you.
+
+Having "Insane curiosity" in things that have an immense impact on the world, will not only leave you to be useful to yourself but others by trying to create more useful stuff for the world. I will leave this short post with a quote.
+
+> We are not living in a world that we were born into - Mark Cuban's Dad
+
+## Master of fate - 20.03.2024
 
 Do you often wonder, about where you are and what you do in life? You are not alone. And it is also not surprising that for most people, the justifications always go back to the opportunities one had, the financial situation their family came from or someone who took a decision on behalf of them. This article, [When I grow up, I want to be](https://www.perkbox.com/uk/resources/blog/when-i-grow-up-i-want-to-be), shows that around 96% adults never become what they wanted to be as a child. Sure, most dreams might have just been absurd, based on what we fancied a shiny profession as a kid. But it always has a lot more underlying motivation than a child actually reveals (Next time, try asking a kid **why** they want to become something, instead of stopping at what, and you will be surprised). Eventually we realize the real world needs money, reputation of a decent job among other things and we "settle". But that dream job was what made the child in us happy. The article goes on to conclude that despite not living the dreams that you wanted, there's always a way to integrate your interests and passion into your work and that leads to contentment. 
 
