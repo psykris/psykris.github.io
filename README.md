@@ -1,5 +1,25 @@
 # Blogs 
 
+## Fair Skin and Status: A Look Back at India's History
+
+In India, the preference for fair skin has a long history, but it hasn't always meant what you might think today. Originally, when ancient texts talked about the "lightness" of Brahmins (followers of the path of Brahman - The supreme self), they weren't really talking about skin color—they meant light as in goodness and wisdom. However, as time went on, people started taking it literally, thinking lighter skin meant higher status.
+
+Not all of ancient India was hung up on skin color, though. Just take a look at the stunning dark-skinned figures in the [Ajanta cave paintings](https://pin.it/1OnNat8Ga)—they show that beauty comes in all shades, and those artists certainly didn’t think darker skin was any less gorgeous.
+
+Things got more complicated when rulers from places like Persia, Turkey, and Afghanistan came along. These people had lighter skin, and because they were kings and queens, everyone else wanted to be like them. The Islamic conquest brought Persian and Turkish influences into Indian society, which led to the association of fair skin with the ruling elite.
+
+It was similar when the British ruled India—the fair-skinned British were in charge, and speaking English and acting a bit Western became a ticket to moving up in society. Colonial rule reinforced the idea that lighter skin was superior, with British rulers being seen as the epitome of sophistication and authority. Fair-skinned Indians were considered closer to the British and often given favorable treatment. This led to the rise of the "Anglo-Indian" class and a widespread belief that speaking English and adopting Western ways could help one advance socially.
+
+Even today, the echoes of British influence are still heard, as fluency in English and Western habits are frequently seen as markers of societal advancement.
+
+Beyond these historical influences, the global fashion and entertainment industries have perpetuated the idea that fair skin is superior. India's film industries, often favor fair-skinned actors and actresses, reinforcing the association of the concept of beauty with lighter skin. Many advertisements feature fair-skinned models, and skin-lightening products like Fair & Lovely dominate the Indian cosmetics market. This mirrors the preference for lighter skin seen worldwide, where white colonization and Western beauty standards have shaped ideals of attractiveness. The [Matrimonial sites](https://brightthemag.com/fair-but-not-so-lovely-indias-obsession-with-skin-whitening-beauty-body-image-bleaching-4d6ba9c9743d) are a joke, once you understand that complexion is a major decision-making factor in selecting a life partner
+
+Martin Luther King Jr. dreamed of a world where people are judged by their character, not by their color. This is something we can all aim for, considering that the gods worshiped by over a billion people globally are depicted with dark skin in Hinduism. Rama, Krishna, Shiva, and Kali, some of the most revered deities, are often described as having dark complexions, yet they are symbols of divinity and heroism.
+
+So, one family at a time, one child at a time, let's shake off this age-old obsession with fairness and focus more on what truly matters, the inside. Let us not shape ourselves and the next generations into thinking fairer skin is somehow automatically better. This leads to extreme insecurity about their own identity, without absolutely any fault of their own.
+
+After all, true beauty is about who we are and how we behave, not how we look :)
+
 ## Curiosity - 15.04.2024
 
 I bet you have heard this at least once as a kid. 
