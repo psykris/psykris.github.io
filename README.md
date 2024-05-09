@@ -1,6 +1,6 @@
 # Drifting contemplation
 
-## Fair Skin and Status: A Look Back at India's History
+## Fair Skin and Status: A Look Back at India's History - 08.05.2024
 
 In India, the preference for fair skin has a long history, but it hasn't always meant what you might think today. Originally, when ancient texts talked about the "lightness" of Brahmins (followers of the path of Brahman - The supreme self), they weren't really talking about skin color—they meant light as in goodness and wisdom. However, as time went on, people started taking it literally, thinking lighter skin meant higher status.
 
