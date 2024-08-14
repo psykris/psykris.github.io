@@ -1,5 +1,19 @@
 # Drifting contemplation
 
+## Mother India - 14.08.2024
+
+India is a mosaic of intricate, colorful memories that are very close to my heart. The thought of home fills me with warmth, and I’m instantly transported to the taste of street-side chaat, and the lively chaos of growing up. It’s a place I miss dearly, often and intensely.
+
+Yet, this nostalgia is always followed by the reasons why I left in the first place. Opportunity, reservation (unfair advantage), and mostly, freedom. Freedom to not be judged, to live life on my terms. In many Indian communities, there’s often a well-meaning but persistent tendency to steer others toward a ‘decent life’ as they see it. It can be as small as a lifestyle choice to all your major life choices (marriage, money, and kids). And while this can be part of our lively culture, I sometimes feel it also creates an environment where subtle comparisons and expectations weigh heavily on us.
+
+This environment, to me, has fostered a ‘crab mentality,’ where ambition is tempered not by support but by an unspoken competition. We smile and laugh together, but beneath the surface, there’s a tension—a drive to outdo each other, sometimes at the cost of genuine connection. This, I believe, affects our psyche more than we realize.
+
+Maybe you think this is an exaggerated view, shaped by my own experiences. Life abroad, with its occasional bouts of racism and loneliness, is not without its flaws. Yet, the merit-based equal opportunities and the financial stability make it all much easier to handle. When I see the [Stagnant entry salaries for decades](https://www.hindustantimes.com/trending/cognizant-trolled-after-offering-freshers-rs-2-52-lakh-per-annum-for-it-job-very-generous-101723550243455.html) for fresh graduates in India, it’s hard not to feel validated in my choice to leave early in my career.
+
+India is on a remarkable journey, poised to become a global superpower. I couldn’t be prouder of what she is becoming. But as the distance between me and the culture grows, I find myself more alienated from relatives and friends with each passing year. I worry that the cultural chasm has widened too much, making each visit feel like stepping into a life I no longer recognize.
+
+Perhaps what I seek isn’t a comeback, but a reconciliation—a way to bridge the gap between the India I loved and the person I’ve become. As India strides towards its future, I can’t help but wonder—will I find my place in the new India, back to my people or will the distance remain, an echo of great memories that time has altered forever?
+
 ## Fair Skin and Status: A Look Back at India's History - 08.05.2024
 
 In India, the preference for fair skin has a long history, but it hasn't always meant what you might think today. Originally, when ancient texts talked about the "lightness" of Brahmins (followers of the path of Brahman - The supreme self), they weren't really talking about skin color—they meant light as in goodness and wisdom. However, as time went on, people started taking it literally, thinking lighter skin meant higher status.
@@ -46,7 +60,6 @@ On this World Happiness Day, I sincerely wish everyone reading this, to spend ti
 
 > You are the master of your fate and the captain of your soul. Realize that life is coming FROM you and not AT you. - [Invictus, William Ernest Henley](https://www.poetryfoundation.org/poems/51642/invictus) & [Timothée Chalamet ;)](https://www.youtube.com/watch?v=tOwtEmSNvL0)
 
-
 ## Somebody's fool - 19.03.2024
 
 As children take shape of their persona during the years leading to adulthood, it is quite essential that they understand concepts of individuality, independence, and the ability to navigate tough conversations and situations that life presents inevitably. These traits are generally instilled by parents and other close individuals by direct influence or books and other channels by indirect influence. It is notoriously hard to change or inculcate new habits, especially behavioural, because life needs to be on auto-pilot during most of the adult life. The average adult, often does not have the luxury to constantly monitor their own thoughts and compulsive behaviours towards individuals or situations, because it can be mentally exhausting. And lets face it, taking a whole minute to respond to someone during a conversation seems lame. No one waits that long or simply deem the non-response as incompetence. So, some react emotionally and some simply avoid confrontations and tough conversations because it seems unnecessary. 
@@ -84,10 +97,6 @@ So, the solution to this madness? Detachment. Disassociate yourself from the wor
 I will not go spiritual by telling you that the "World is one family" (Vasudaika Kutumbam - Sanksrit). Learn away, compete with yourself. If possible uplift someone else on the journey with you. But at least, despite not nurturing, do not inflict any damage. 
 
 Let's be better by staying conscious of our behavior, towards the more vulnerable and breaking our generational curses.
-
-
-
-
 
 ## The moment - 11.11.2022
 
